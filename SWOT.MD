@@ -16,6 +16,6 @@
 
 #### Mtrek Խանութ
 
-![img]()
+![img](Maps/Map_2.png)
 
 --
