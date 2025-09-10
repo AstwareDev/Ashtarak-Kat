@@ -41,3 +41,6 @@
 **Աշտարակ Կաթ**՝ Չկա կամ շատ քիչ քանակով դժվար գտնվող տեղերում քան Marianna-ն
 
 ---
+#### Inchvor ankap Xanut Katalisti moter@
+
+
